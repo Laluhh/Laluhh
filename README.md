@@ -1,4 +1,6 @@
-## Hi there 👋
+## ‿‿  , （｡>‿‿<｡） 🫛  Laluh —  ✙
+
+![where Itrapped](https://github.com/user-attachments/assets/0422a607-74d6-4ee6-b6d5-ef8895c1398a)
 
 <!--
 **Laluhh/Laluhh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
