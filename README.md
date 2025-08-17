@@ -7,7 +7,7 @@
 
 hi!! Ty for reading I am super lazy to decor this
 Ts all you get ok?.. Ok? Ok ok
-Call me laluh please!! Use he/him I'm trans and also aroace!! I'm a diagnosed ADHD and I'm 15! don't be weird
+Call me laluh please!! Use he/him I'm trans and also aroace!! diagnosed ADHD and I'm 15!
 
 please call me laluhh or any nickname u give me just not call me lala unless I allow you to lalalala
 
