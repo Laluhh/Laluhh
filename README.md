@@ -1,7 +1,7 @@
 ## ‿‿  , （｡>‿‿<｡） #  Laluh —  ✙
 
 
-![my art](https://github.com/user-attachments/assets/d327024d-2bce-45d4-b7c3-0c41c585698d)
+
 
 
 
