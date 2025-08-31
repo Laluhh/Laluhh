@@ -1,6 +1,6 @@
 ## ‿‿  , （｡>‿‿<｡） #  Laluh —  ✙
 
-‎Hi please call me laluh or lala if close its my comfort name!! diagnosed ADHD i am 15 and please use he/him on me unless its my buddy (gub Hi Hi) cus he sucks ew
+‎Hi please call me laluh or lala if close its my comfort name!! diagnosed ADHD i am 15 and please use he/him on me I'm aroace ew ok
 
 ‎
  ## ‎INFO! 
