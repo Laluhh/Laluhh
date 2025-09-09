@@ -1,14 +1,14 @@
 ## ‿‿  , （｡>‿‿<｡） #  Laluh —  ✙
 
-‎Hi please call me laluh or lala if close its my comfort name!! diagnosed ADHD i am 15 and yes use he/him aroace ok? ok trans ok? ok don't randomly add me or invite me in parties, if you wanna be discord friends pls mind you I am NOT a good person to be with I am a good mootie tho trust ✌
+‎kyuu!! call me laluh or lala enc lala btw!! I'm 15 ok? I gay and tmasc ok? I asexual ok? diagnosed ADHD brav!! please remember I have a lot of problems keep that in mind please think first b4 adding! I don't int first unless ur my close friends ok.. kyuuu!! 
  
  ## ‎INFO! 
-‎Don't use sexual jokes too much on me Idm but if its ur whole personality please take it easy, i get easily overwhelmed if i want space ill just walk away and pls let me be !! , im sometimes a freak and might be taking risk pls tell me if ur uncomfy i really dont mind, please don't vent i am struggling with my own Health but i do love to listen to ur rants! I am awkward I don't int ppl who doesn't match my energy + I get comfortable too easily, I do harmful jokes to my friends if you see me being mean and ur uncomfy just hide! guys pls I'm not nonchalant or a srs person int guys 🥹🥹
+‎ idm sexual jokes but have limits!! 
+I get overwhelmed easily if crowded okay I might move everywhere, please don't vent or think negative around me unless ur my close friends if I want space I'll move without saying anything please leave me alone kyu!! dont be afraid to c+h i don't bite trust
 
 ## INT! 
-‎Drawnout, forsaken, BSD, brandonworks, ^_^ , let him go, HNK, Flamingo and friends, rdr2, sq, may madness 2012 , pizza game and more!! 
+‎Drawnout, forsaken, BSD, brandonworks, ^_^ , let him go, HNK, Flamingo and friends, rdr2, sq, may madness 2012 , pizza game , my mouth is rotting, and more!! 
 ‎
 ## DNI!
-basic DNI, under 12, idm adults just don't be weird, overly sensitive, keep ur weird interest away idm just don't talk about it, pls don't get attached dude I am NOT ur best friend (aimed) 
+basic dni, problematic ppl, idm WILD coping mechanism just please don't talk about it to me, and OVERLY sensitive ppl 
 
-will always update ts nya
