@@ -1,6 +1,6 @@
 ## ‿‿  , （｡>‿‿<｡） #  Laluh —  ✙
 
-‎kyuu!! call me laluh or lala enc lala btw!! I'm 15 ok? I gay and tmasc ok? I asexual ok? diagnosed ADHD brav!! please remember I have a lot of problems keep that in mind please think first b4 adding! I don't int first unless ur my close friends ok.. kyuuu!! 
+‎kyuu!! call me laluh or lala encourage calling me lala btw!! I'm 15 ok? I gay and tmasc ok? I asexual ok? diagnosed ADHD brav!! please remember I have a lot of problems keep that in mind please think first b4 adding! I don't int first unless ur my close friends ok.. kyuuu!! 
  
  ## ‎INFO! 
 ‎ idm sexual jokes but have limits!! 
