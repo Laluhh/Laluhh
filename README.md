@@ -10,5 +10,5 @@ I get overwhelmed easily if crowded okay I might move everywhere, please don't v
 ‎Drawnout, forsaken, BSD, brandonworks, ^_^ , let him go, HNK, Flamingo and friends, rdr2, sq, may madness 2012 , pizza game , my mouth is rotting, and more!! 
 ‎
 ## DNI!
-basic dni, problematic ppl, idm WILD coping mechanism just please don't talk about it to me, and OVERLY sensitive ppl 
+basic dni, problematic ppl, idm WILD coping mechanism just please don't talk about it to me, OVERLY sensitive ppl, if I block you please don't try to int again block = dni brah, I get annoyed easily and I don't say it if I move and I stopped talking please don't try to int again 
 
