@@ -4,7 +4,7 @@
  
  ## ‎INFO! 
 ‎ idm sexual jokes but have limits!! 
-I get overwhelmed easily if crowded okay I might move everywhere, please don't vent or think negative around me unless ur my close friends if I want space I'll move without saying anything please leave me alone kyu!! i am a handful byi pls mind that i love my bf and my friends theyre aweeeeee hii gubb hiii koii hii guys
+I get overwhelmed easily if crowded okay I might move everywhere, please don't vent or think negative around me unless ur my close friends if I want space I'll move without saying anything please leave me alone kyu!! i am a handful byi pls mind that i love my bf and my friends theyre aweeeeee hii gubb hiii koii hii TRODY I LOVE UU MWHAHH
 
 ## INT! 
 ‎Drawnout, forsaken, BSD, brandonworks, ^_^ , let him go, HNK, Flamingo and friends, rdr2, sq, may madness 2012 , pizza game , my mouth is rotting, and more!! 
